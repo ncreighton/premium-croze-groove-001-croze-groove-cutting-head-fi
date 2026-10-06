@@ -1,0 +1,2 @@
+# premium-croze-groove-001-croze-groove-cutting-head-fi
+Tired of mismatched croze depths and head fits that cost you hours of rework? This Notion template turns your workshop chaos into a precision-driven workflow.  The Croze Groove Cutting &amp; Head Fit Craft Workshop template eliminates the guesswork from barrel-making by linking every croze cut to its corresponding head fit. It provides a unified worksp
